@@ -35,4 +35,9 @@ Não pretendo seguir carreira na tecnologia, mas estou aproveitando cada segundo
 
 
 ---
+## 📧Email 
+ligyageorges@gmail.com
+
+## 🎀Instagram
+ligya_nicolly
 
